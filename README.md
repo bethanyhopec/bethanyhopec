@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Bethany Hope Cabristante
 - 🌱 I’m currently studying at WVSU taking up BS in Computer Science
-- 📫 You can reach me trough my fb acc. Bethany Hope Cabristante
+- 📫 You can reach me through my fb acc. Bethany Hope Cabristante
 -     I love to write, cook and sleep haha...
 
 <!---
